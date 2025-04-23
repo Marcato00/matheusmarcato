@@ -27,6 +27,6 @@ Meu objetivo é continuar aprofundando meus conhecimentos em **desenvolvimento F
 **Vamos conversar!**  
 - [LinkedIn](https://www.linkedin.com/in/matheus-marcato-dev/)  
 - [E-mail](mailto:matheus.marcato00@gmail.com)
-- [Telefone](12996570991)
+- [Clique aqui para me chamar!](https://wa.me/5512996570991)
 
 🚀 **Sempre em busca de evoluir como desenvolvedor Front-End e contribuir para a comunidade tech!** 🚀
